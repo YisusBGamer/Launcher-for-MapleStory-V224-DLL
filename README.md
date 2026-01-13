@@ -1,4 +1,6 @@
-DISCORD https://discord.com/invite/F3gxsSTuHV
+Don't worry, you can tell me anything you want, I won't get angry. Thanks to Celestia for making it easy to extract the code
+
+   DISCORD https://discord.com/invite/F3gxsSTuHV
 
 💥 UNLOCK YOUR GAME! Introducing the Ultimate Launcher for MapleStory V224 + DLL 🚀
 
